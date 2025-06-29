@@ -1,0 +1,1 @@
+# BFW-Project-004-Suchprompt-fuer-Praktikumsplaetze-MEDIEN
